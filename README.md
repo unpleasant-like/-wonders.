@@ -2,5 +2,5 @@
   
 <details>
   <summary>what am I feeling ?</summary>
-  <p>whats ur fucking problem replacing me wow thats funny</p>
+  <p>watch me get fucking replaced under one week new record</p>
 </details>
