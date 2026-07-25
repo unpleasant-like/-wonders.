@@ -1,6 +1,6 @@
-# <p align="center">i dont know—changes daily !<p align="center">
+<p align="center">changes daily !<p align="center">
 
 <details>
   <summary>what am i feeling
     
-</details> hm
+</details> 
