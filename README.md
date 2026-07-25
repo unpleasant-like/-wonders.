@@ -6,12 +6,10 @@
     <br>
     
   "
-    
   <br>
   
   around 11 pm
-  
   <br>
-    i dont know guys but might suicide soon
+    i dont know guys but might suicide soon or just goodnight kkay
   </p>
 </details>
