@@ -19,7 +19,7 @@
   <summary>august 1, 2026</summary>
   <p>woo ok what the fuck ok im showing the picture omfg dude
   <br>
-  ![sticker](Screenshot_20260724_231813_Pony Town.jpg)
+they wont work but its that sad
 <br>
   these screenshots were weeks old ok to not make this worser or kasper think im victimizing /? myself . i had hope on him. i thought he would actually come back after the document stuff but instead they got themself a partner /if its not a partner. then its my pov/ 
     <br>
