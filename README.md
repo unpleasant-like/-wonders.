@@ -14,10 +14,6 @@
   </p>
 </details>
 
-<br>
-<details>
-  <summary>august 1, 2026</summary>
-  <p></p>
-  ![sticker](0ed1ad839b15af02aa97aa24b123d887.jpg) 
+ ![sticker](0ed1ad839b15af02aa97aa24b123d887.jpg) 
   <br>
     
