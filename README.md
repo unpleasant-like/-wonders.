@@ -19,9 +19,15 @@
   <summary>august 1, 2026</summary>
   <p>woo ok what the fuck ok im showing the picture omfg dude
   <br>
+    
 they wont work but its that sad
+
 <br>
-  these screenshots were weeks old ok to not make this worser or kasper think im victimizing /? myself . i had hope on him. i thought he would actually come back after the document stuff but instead they got themself a partner /if its not a partner. then its my pov/ 
+  these screenshots were weeks old ok to not make this worser or kasper think im victimizing /? myself . i had hope on him. i thought he would actually come back after the document stuff 
+  
+ <br>
+ 
+  but instead they got themself a partner /if its not a partner. then its my pov/ 
     <br>
     
   i actually cared about kasper so much even after we separated ,why did we even had to seprate dud i didnt even ask for that.
