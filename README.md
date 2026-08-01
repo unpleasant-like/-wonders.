@@ -13,3 +13,11 @@
     i dont know guys but might suicide soon or just goodnight kkay
   </p>
 </details>
+
+<br>
+<details>
+  <summary>august 1, 2026</summary>
+  <p>woo ok what the fuck ok im showing the picture omfg dude
+  <br>
+  </p>
+
