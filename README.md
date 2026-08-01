@@ -1,4 +1,4 @@
-<p align="center">![sticker](0ed1ad839b15af02aa97aa24b123d887.jpg)<p align="center">
+<p align="center">vents<p align="center">
   
 <details>
   <summary>july 25 , 2026</summary>
@@ -26,6 +26,10 @@
     im stupid for thinking he would come back ill never felt loved for a long day.
   </p>
 
-![screenshot](Screenshot_20260724_231813_Pony Town.jpg)
-    ![screenshot](Screenshot_20260724_231727_Pony Town.jpg)
+  ![sticker](0ed1ad839b15af02aa97aa24b123d887.jpg) 
+  <br>
+  
+![picture](Screenshot_20260724_231813_Pony Town.jpg) 
+<br>
+![picture](Screenshot_20260724_231727_Pony Town.jpg)
     
